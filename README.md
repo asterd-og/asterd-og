@@ -1,1 +1,1 @@
-## 🐱 Olá! Sou eu, Astrido!
+## 🐱 
